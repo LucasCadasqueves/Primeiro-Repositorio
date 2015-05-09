@@ -4,3 +4,5 @@ Criação de meu primeiro repositório para o exercício da matéria de Fundamen
 /////
 
 Tah mto fraco o negócio aqui kkkkk
+
+Fique susse cara, no final dá tudo certo...kkk
